@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MisheruSan
+- 🚹 I have 22yo
+- 💖 I like video games, music and IT
+- 🔰 My work is IT 
